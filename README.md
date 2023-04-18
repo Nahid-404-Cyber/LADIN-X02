@@ -1,4 +1,4 @@
-# LADIN-X02𝚅𝙸𝚂𝙸𝚃𝙾𝚁𝚂 𝙲𝙾𝚄𝙽𝚃
+# 𝐈𝐍𝐃𝐈𝐀 𝐂𝐘𝐁𝐄𝐑 𝐇𝐀𝐂𝐊𝐄𝐑 𝐍𝐀𝐇𝐈𝐃
 
 <img src="https://profile-counter.glitch.me/𝐋𝐀𝐃𝐈𝐍count.svg" />
 
